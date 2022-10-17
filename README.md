@@ -1,0 +1,1 @@
+# PLN-com-an-lise-de-sentimento-para-classfica-o-de-cr-ticas-cinematogr-ficas
